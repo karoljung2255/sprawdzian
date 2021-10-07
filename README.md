@@ -1,2 +1,2 @@
 # sprawdzian
-ass
+tdyfyuuiffyfy
